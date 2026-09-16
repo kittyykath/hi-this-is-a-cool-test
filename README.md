@@ -27,4 +27,4 @@ https://i.imgur.com/Q4nStlf.png
 ⠀⠀⠀ ⠀<a href="https://spamware.straw.page/">strawpage</a>⠀⠀<a href="https://big-shot.atabook.org">atabook</a>⠀⠀<a href="https://pronouns.cc/@bigshot">pronounscc</a>
 <p>
    <p align="left"> 
-⠀  ⠀⠀  ⠀<img src="https://i.postimg.cc/Nf7WCcxV/stamp.png"] width="100%" height="auto"> 
+⠀  ⠀⠀  ⠀<img src="https://i.imgur.com/Q4nStlf.png" width="100%" height="auto"> 
